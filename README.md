@@ -13,7 +13,7 @@ Skilled in:
 Currently seeking:
 - Data Analyst Internships
 - Entry-Level Analyst Roles
-- Remote Opportunities
+- On-site , Hybrid and Remote Opportunities
 
 ---
 
